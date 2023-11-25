@@ -1,0 +1,1 @@
+# [Maket](https://www.figma.com/file/2AS6R8XC1GPENt5LxwoRLJ/Furniture-Landing-Page-%23%D0%BF%D1%80%D0%BE%D1%81%D1%82%D0%BE%D0%B9-%23%D1%81%D1%82%D1%80%D0%B8%D0%BC?type=design&node-id=324-2&mode=design&t=J2i37aRexwtDcXnN-0)
